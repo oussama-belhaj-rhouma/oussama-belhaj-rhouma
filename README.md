@@ -12,7 +12,7 @@
 
  📫 How to reach me **oussama.belhajrhouma@etudiant-fst.utm.tn**
 
- 📄 Know about my experiences [my resume](https://www.docdroid.net/Br4eols/oussama-english-cv-resume-pdf)
+ 📄 Know about my experiences [my resume](https://www.docdroid.net/AhhO1ww/english-resume-pdf)
 <hr/>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
